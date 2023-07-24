@@ -1,1 +1,0 @@
-Saya mencoba menbuat lagi
